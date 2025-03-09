@@ -1,0 +1,2 @@
+# bunga
+aku ga sayang darimana haaahhh?!?!?!???
